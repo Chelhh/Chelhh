@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Chelsea
+- 🌱 I’m currently studying Bachelor of Science major in Computer Science
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: hhqhua@gmail.com
